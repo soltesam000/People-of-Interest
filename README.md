@@ -1,1 +1,2 @@
 # People-of-Interest
+KAREL ČAPEK was a Czech writer in the early 20th Century, who introduced the word "Robot"to society and made it popular internationally.Becasue of him, today we use the word robot as to describe our technology which we use in an everyday life. Before this, he was a science fiction writer, his 1936 novel War with the Newts and 1920 play R.U.R. (Rossum's Universal Robots), introduced the word robot. His book was turned into a short film.
